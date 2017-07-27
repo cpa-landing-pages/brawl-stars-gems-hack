@@ -1,4 +1,4 @@
-### Brawl Stars Hack (Franche)
+### Brawl Stars Gems Hack (French Content)
 
 #### About
 ---
